@@ -1,5 +1,5 @@
 # SAYNA-UXUI-REVOLUTION
-Voici mon projet sur |ÉVALUATION INTERMÉDIAIRE|SAYNA RÉVOLUTION
+Voici le rendu de mon |ÉVALUATION INTERMÉDIAIRE|SAYNA RÉVOLUTION
 
 Ci-après les liens 
 
